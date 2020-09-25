@@ -14,5 +14,9 @@ I'm interested in the following:
 
 I'm actively looking for full time positions starting January 2021. 
 LinkedIn: https://www.linkedin.com/in/tazeenmunnavar/
-Website: https://tazeenmunnavar.myportfolio.com/work
+
 Tableau Interactive Resume: https://public.tableau.com/profile/tazeenmunnavar#!/vizhome/TazeenMunnavar-InteractiveResume/Dashboard1
+
+Website: https://tazeenmunnavar.myportfolio.com/work
+
+
