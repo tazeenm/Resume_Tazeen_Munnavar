@@ -13,6 +13,7 @@ I'm interested in the following:
 - Business Analyst
 
 I'm actively looking for full time positions starting January 2021. 
+
 LinkedIn: https://www.linkedin.com/in/tazeenmunnavar/
 
 Tableau Interactive Resume: https://public.tableau.com/profile/tazeenmunnavar#!/vizhome/TazeenMunnavar-InteractiveResume/Dashboard1
