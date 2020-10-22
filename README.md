@@ -1,4 +1,4 @@
-# Resume_Tazeen_Munnavar
+# Introduction!
 
 Hello, I am Tazeen Munnavar, a graduate Management Information Systems student at The Eller College of Management.
 
