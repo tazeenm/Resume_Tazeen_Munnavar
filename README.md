@@ -12,7 +12,7 @@ I'm interested in the following:
 - Data Engineer/Analyst
 - Business Analyst
 
-I'm actively looking for full time positions starting January 2021. 
+I'm actively looking for full time positions starting February 2021. 
 
 LinkedIn: https://www.linkedin.com/in/tazeenmunnavar/
 
