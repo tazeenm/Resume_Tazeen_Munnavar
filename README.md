@@ -18,6 +18,4 @@ LinkedIn: https://www.linkedin.com/in/tazeenmunnavar/
 
 Tableau Interactive Resume: https://public.tableau.com/profile/tazeenmunnavar#!/vizhome/TazeenMunnavar-InteractiveResume/Dashboard1
 
-Website: https://tazeenmunnavar.myportfolio.com/work
-
 
